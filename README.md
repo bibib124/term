@@ -1,1 +1,1 @@
-pls read the terms file
+pls read the terms file and Privacy Policy
